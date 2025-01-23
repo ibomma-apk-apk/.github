@@ -1,6 +1,6 @@
 ## iBomma APK Free Download For Android Latest Version - New 2025
 
-# Download: 👉 https://heyapks.com/ 👈📲
+# Download: 👉 https://ibomma.heyapks.com/ 👈📲
 
 ![images](https://github.com/user-attachments/assets/e81c7434-f0ac-4704-bfb2-372348289198)
 
